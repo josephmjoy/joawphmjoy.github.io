@@ -1,2 +1,2 @@
-# joawphmjoy.github.io
+# josephmjoy.github.io
 JMJ professional page
